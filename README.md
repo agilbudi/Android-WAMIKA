@@ -1,3 +1,4 @@
 # Project WAMIKA
-Make it right, baby...<br/>
-we work together, right? working with pray to Allah, to be blessed.
+<p style="text-align:center;">Make it right, baby...<br/>
+we work together, right?<br/>
+<em>"dikerjakan dengan ikhlas, berharap ridho Allah"</em></p
